@@ -1,0 +1,1 @@
+# mode-trik-mahjong
